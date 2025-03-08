@@ -23,7 +23,7 @@ I'm a passionate Graphic Designer with expertise in branding, social media marke
 ## 💼 Professional Experience
 
 ### 🏢 TeamZ (A Startup) | Graphic Designer and Social Media Coordinator
-`2023 - Present` | Bangalore, KA
+`2023 - 2025` | Bangalore, KA
 - Develop branding materials and marketing assets
 - Manage social media presence, increasing engagement
 - Design promotional content for events and campaigns
