@@ -62,7 +62,7 @@ Feel free to reach out for collaborations, project inquiries, or just to say hel
 
 - 📧 Email: amrnath2606@gmail.com
 - 📱 Phone: +91 9745435715, +91 8590720457
-- 🌐 Portfolio: https://amrnath.my.canva.site
+- 🌐 Portfolio: https://methodical-terms-283403.framer.app/
 - 💼 LinkedIn: www.linkedin.com/in/amarnathns
 
 ---
